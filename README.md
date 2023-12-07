@@ -14,7 +14,7 @@
 
 - 💬 Ask me about **HTML CSS & JS**
 
-- 📫 How to reach me **gopusharma62@gmail.com**
+- 📫 How to reach me **gopalkamalsharma@gmail.com**
 
 - ⚡ Fun fact **I think I am creative, just kiddin**
 
